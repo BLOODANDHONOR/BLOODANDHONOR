@@ -8,7 +8,7 @@
 
   
 
-I'm just someone who sits around, watches conversation (wihout anyone knowing), read stuff and im a just a lil guy
+I'm just someone who sits around and read stuff im a just a lil guy
 
 
 
@@ -36,7 +36,7 @@ I'm just someone who sits around, watches conversation (wihout anyone knowing), 
 - ୨୧* - food 
 - ୨୧* - i like a TON of bands, especially MALICE MIZER, MOI DIX MOIS, GHOST BC, QUEEN, ABBA, Autoheart, Cup of Joe, AG, CIGARETTES AFTER SXX, The Cardigans and THE FAMILY CREST.
 - ୨୧* - oh I also like alot of artists but my favorites are 100% MITSKI, IAMX, Kikuo, MASA WORKS DESIGN, G&Ps, Will Wood, Lemon Demon and many more
-
+- ୨୧* - I guess I like osc???
 
   
 - ୨୧* - sharks are cool, puffins are cool, ducks are cool, dinosaurs are cool, fish are cool oh hey birds are cool
