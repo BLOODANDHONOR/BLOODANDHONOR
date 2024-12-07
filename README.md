@@ -1,6 +1,7 @@
- [hi (creds by basilleaf)](https://github.com/user-attachments/assets/7bfebcee-5f73-4f83-b01e-3385dd1c2f4c)
+![hi](https://github.com/user-attachments/assets/74dd9a99-ea57-417a-aa3d-0a3556015219)
 
-ok bye bye
+
+
 <!---
 BLOODANDHONOR/BLOODANDHONOR is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
