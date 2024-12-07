@@ -1,7 +1,7 @@
- [hi (creds by Basilleaf)](https://github.com/user-attachments/assets/7bfebcee-5f73-4f83-b01e-3385dd1c2f4c)
+ [hi (creds by Basilleaf)]!(https://github.com/user-attachments/assets/7bfebcee-5f73-4f83-b01e-3385dd1c2f4c)
 
 
-- hi i go by too many names but you can call me COR (or EL if thats ok)
+- i go by too many names but you can call me COR (or EL if thats ok)
 - pronouns? you can call me any i wont really care
 - youll see me spat nonsense yadaa yadaa
 - idk why i made this
