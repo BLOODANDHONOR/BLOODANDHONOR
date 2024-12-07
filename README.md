@@ -1,4 +1,4 @@
- [hi (creds by Basilleaf)]!(https://github.com/user-attachments/assets/7bfebcee-5f73-4f83-b01e-3385dd1c2f4c)
+ [hi (creds by Basilleaf)](!https://github.com/user-attachments/assets/7bfebcee-5f73-4f83-b01e-3385dd1c2f4c)
 
 
 - i go by too many names but you can call me COR (or EL if thats ok)
