@@ -46,7 +46,7 @@ I'm just someone who sits around, watches conversation (wihout anyone knowing), 
 
 thats all for today i hope you like and
 
- [cat](https://github.com/user-attachments/assets/7bfebcee-5f73-4f83-b01e-3385dd1c2f4c)
+ [wait have this](https://github.com/user-attachments/assets/7bfebcee-5f73-4f83-b01e-3385dd1c2f4c)
  
 [ CREDITS :: BASILLEAF ON X rip blue bird ]
 
