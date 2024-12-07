@@ -1,13 +1,17 @@
  [hi (creds by Basilleaf)](https://github.com/user-attachments/assets/7bfebcee-5f73-4f83-b01e-3385dd1c2f4c)
 
+
 - hi i go by too many names but you can call me COR (or EL if thats ok)
 - pronouns? you can call me any i wont really care
+
   
 
 I'm just someone who sits around, watches conversation (wihout anyone knowing), read stuff and im a just a lil guy
 
 
+
 ࣪ ִֶָ☾. >> idk stuff about me <<
+
 
 
 - ୨୧* - you are NOT getting my age, my actual name but you'll be getting my height because you don't know who I am
@@ -17,18 +21,25 @@ I'm just someone who sits around, watches conversation (wihout anyone knowing), 
 - ୨୧* -  i study (yes)
 
 
+
 >>>
 
+
+
 ࣪ ִֶָ☾. >> stuff I like <<
+
+
 
 - ୨୧* - food 
 - ୨୧* - i like a TON of bands, especially MALICE MIZER, MOI DIX MOIS, GHOST BC, QUEEN, ABBA, Autoheart, Cup of Joe, AG, CIGARETTES AFTER SXX, The Cardigans and THE FAMILY CREST.
 - ୨୧* - oh I also like alot of artists but my favorites are 100% MITSKI, IAMX, Kikuo, MASA WORKS DESIGN, G&Ps, Will Wood, Lemon Demon and many more
 
+
   
 - ୨୧* - sharks are cool, puffins are cool, ducks are cool, dinosaurs are cool, fish are cool oh hey birds are cool
 - ୨୧* - mcyt
 - ୨୧* - documentaries about shit im not suppose to be studying but theyre history so why not i recommended Sam O Nella and Oversimplified cause why not
+
 
 
   ࣪ ִֶָ☾. >> stuff I dont like <<
@@ -49,13 +60,12 @@ I'm just someone who sits around, watches conversation (wihout anyone knowing), 
 
 thats all for today i hope you like and
 
- [idk have this (i didnt make this)][IMG_1298](https://github.com/user-attachments/assets/1938710c-4b32-4a87-8757-3aae4c72b4d2)
+ [idk have this (i didnt make this)](https://github.com/user-attachments/assets/1938710c-4b32-4a87-8757-3aae4c72b4d2)
 
  
 
    
-
-
+ok bye bye
 <!---
 BLOODANDHONOR/BLOODANDHONOR is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
