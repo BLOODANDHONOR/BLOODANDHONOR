@@ -3,6 +3,8 @@
 
 - hi i go by too many names but you can call me COR (or EL if thats ok)
 - pronouns? you can call me any i wont really care
+- youll see me spat nonsense yadaa yadaa
+- idk why i made this
 
   
 
@@ -19,6 +21,7 @@ I'm just someone who sits around, watches conversation (wihout anyone knowing), 
 - ୨୧* - my cat would get infront of my keyboard but hes so small he couldnt press the keys :rofl::rofl::rofl: (his name is eduardo)
 - ୨୧* - i play percussions and hopes to play guitar
 - ୨୧* -  i study (yes)
+- ୨୧* - i dont have that many socials but i have discord (ask me for it tho)
 
 
 
@@ -37,7 +40,7 @@ I'm just someone who sits around, watches conversation (wihout anyone knowing), 
 
   
 - ୨୧* - sharks are cool, puffins are cool, ducks are cool, dinosaurs are cool, fish are cool oh hey birds are cool
-- ୨୧* - mcyt
+- ୨୧* - mcyt guess which smps
 - ୨୧* - documentaries about shit im not suppose to be studying but theyre history so why not i recommended Sam O Nella and Oversimplified cause why not
 
 
@@ -60,7 +63,7 @@ I'm just someone who sits around, watches conversation (wihout anyone knowing), 
 
 thats all for today i hope you like and
 
- [idk have this (i didnt make this)](https://github.com/user-attachments/assets/1938710c-4b32-4a87-8757-3aae4c72b4d2)
+ [idk have this (i didnt make this and i dunno who the artist is imsorry)](https://github.com/user-attachments/assets/1938710c-4b32-4a87-8757-3aae4c72b4d2)
 
  
 
