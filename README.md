@@ -42,6 +42,7 @@ I'm just someone who sits around and read stuff im a just a lil guy
 - ୨୧* - sharks are cool, puffins are cool, ducks are cool, dinosaurs are cool, fish are cool oh hey birds are cool
 - ୨୧* - mcyt guess which smps
 - ୨୧* - documentaries about shit im not suppose to be studying but theyre history so why not i recommended Sam O Nella and Oversimplified cause why not
+- ୨୧* - hey chilla's art is also cool
 
 
 
