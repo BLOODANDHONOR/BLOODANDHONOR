@@ -46,18 +46,6 @@ I'm just someone who sits around and read stuff im a just a lil guy
 
 
 
-  ࣪ ִֶָ☾. >> stuff I dont like <<
-
-
-  - period jokes(the blood)
-   self-explanitory im not a woman but this makes me mad uncomfortable bro
-
-  - diddy 
-   get OUT
- 
-  - my wifi connnection
-  sometimes saves me but i HATE IT
-
   ୨୧ - I'm pretty much fine about anything as long as you dont do weird shit ok! thank yu
 
   
