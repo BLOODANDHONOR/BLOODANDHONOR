@@ -49,7 +49,7 @@ I'm just someone who sits around, watches conversation (wihout anyone knowing), 
 
 thats all for today i hope you like and
 
- [idk have this (i didnt make this)]![IMG_1298](https://github.com/user-attachments/assets/1938710c-4b32-4a87-8757-3aae4c72b4d2)
+ [idk have this (i didnt make this)][IMG_1298](https://github.com/user-attachments/assets/1938710c-4b32-4a87-8757-3aae4c72b4d2)
 
  
 
