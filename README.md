@@ -21,8 +21,8 @@ I'm just someone who sits around, watches conversation (wihout anyone knowing), 
 
 - ୨୧* - food 
 - ୨୧* - i like a TON of bands, especially MALICE MIZER, MOI DIX MOIS, GHOST BC, QUEEN, ABBA, Autoheart, Cup of Joe, AG, CIGARETTES AFTER SXX, The Cardigans and THE FAMILY CREST.
-
-- ୨୧* - oh I also like alot of artists but my favorites are 100% MITSKI, IAMX, Kikuo, MASA WORKS DESIGN, G&Ps, Will Wood and MANY MANY more.
+- ୨୧* - oh I also like alot of artists but my favorites are 100% MITSKI, IAMX, Kikuo, MASA WORKS DESIGN, G&Ps, Will Wood, Lemon Demon and many more
+- 
 - ୨୧* - sharks are cool, puffins are cool, ducks are cool, dinosaurs are cool, fish are cool oh hey birds are cool
 - ୨୧* - mcyt
 - ୨୧* - documentaries about shit im not suppose to be studying but theyre history so why not i recommended Sam O Nella and Oversimplified cause why not
