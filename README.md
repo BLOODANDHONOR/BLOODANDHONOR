@@ -21,7 +21,7 @@ I'm just someone who sits around and read stuff im a just a lil guy
 - ୨୧* - my cat would get infront of my keyboard but hes so small he couldnt press the keys :rofl::rofl::rofl: (his name is eduardo)
 - ୨୧* - i play percussions and hopes to play guitar
 - ୨୧* -  i study (yes)
-- ୨୧* - i dont have that many socials but i have discord (ask me for it tho)
+- ୨୧* - i dont have that many socials but i have discord
 
 
 
