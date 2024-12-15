@@ -1,8 +1,7 @@
+![no, you should thank me](https://github.com/user-attachments/assets/457870fa-c2f6-4a13-bfdb-dea66d83c788)
 
-![hi](https://github.com/user-attachments/assets/74dd9a99-ea57-417a-aa3d-0a3556015219)
 
-
-hello there
+us?
 
 <!---
 BLOODANDHONOR/BLOODANDHONOR is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
